@@ -2,7 +2,7 @@
 
 Tags: [[Magic]]
 
-jafjo;fijsof
+Quintessence is the building blocks of reality. 
 
 ## Paradox
 [[Paradox]] 
